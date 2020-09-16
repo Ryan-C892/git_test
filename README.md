@@ -22,4 +22,4 @@ And all that is now
 And all that is gone
 And all that's to come
 And everything under the sun is in tune
-But he sun is eclipsed by the moon
+But the sun is eclipsed by the moon
